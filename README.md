@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with computer science.
 - 💬 Ask me about myself.
 - 📫 How to reach me: lhy1421381989@gmail.com
-- ⚡ Fun fact: I like girl's groups.
+- ⚡ Fun fact: I like music, kpop, movies, design and ...
 
