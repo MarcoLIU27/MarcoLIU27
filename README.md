@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m a final year computer science student at the Chinese University of Hong Kong.
+- 🔭 I’m a computer science master student at the University of California San Diego.
 - 💬 Ask me about myself.
-- 📫 How to reach me: lhy1421381989@gmail.com
+- 📫 How to reach me: marco.hyliu@gmail.com
 
